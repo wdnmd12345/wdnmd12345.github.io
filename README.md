@@ -1,3 +1,3 @@
 # wdnmd12345.github.io
-Mindustry资源站
+eternal city服务器网站
 --由muxi创建
